@@ -1,4 +1,4 @@
-https://m.facebook.com/story.php?story_fbid=pfbid02vrfKsp5HAr1Lu7TtDdriREGApyt4fv4JUVkRkJ1zs1CTWCGrewwSG9AS6poJ9nEVl&id=1305225251
+https://facebook.com/story.php?story_fbid=pfbid02vrfKsp5HAr1Lu7TtDdriREGApyt4fv4JUVkRkJ1zs1CTWCGrewwSG9AS6poJ9nEVl&id=1305225251
 https://m.facebook.com/story.php?story_fbid=pfbid02ksr91fykp44QYUm1ntWQzvsCN4NUKLTSXDSJNSJn81xF6Hs9zWpHZPuwbdcV3denl&id=1305225251
 https://m.facebook.com/story.php?story_fbid=pfbid0XUGnuuAaFeKUJnqPAisMuG6DVe9x5RFjdqaCYSNepgpwmqXZnMfFpKCR3HK98hhMl&id=1305225251
 https://m.facebook.com/story.php?story_fbid=pfbid0h7sAQNRmDhnfEAojxjnejCUcHqQnKggm1jqVarTtxjfk1Nw3e9BFAbJ27qbo3TTBl&id=1305225251
